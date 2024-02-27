@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **haziqf6@gmail.com**
 
-- ⚡ Fun fact **I try my best but success is for I to claim**
+- ⚡ Fun fact **I try my best but success is not for I to claim**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
